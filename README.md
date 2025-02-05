@@ -12,3 +12,4 @@ Career Plans
 
 Proud Project/Task
   One experience I’m proud about was during my college journey. My colleagues and I was giving the opportunity to present our project to our schools Town-hall meeting. This presentation, was about E-Sports and its future by being considered as a college sport. E-Sports was gaining traction as being established as a college sport at various schools throughout the country. This presentation led to our program hosting its First E-Sports event a year later. Also, our sister school actually established an E-Sports team where scholarships are provided just to play video games. This experience simply showed how an idea can turn into an opportunity for others. 
+ 
