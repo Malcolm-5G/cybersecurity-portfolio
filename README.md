@@ -1,4 +1,4 @@
-# cybersecurity-portfolio
+# Cybersecurity-Portfolio
 “A portfolio for showcasing my progress and achievements in cybersecurity.”
 # About Me 
 Malcolm Jamal Green  
